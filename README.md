@@ -1,0 +1,4 @@
+# Signora-Store-JUly-2023-
+After years of working in the fashion industry, we realized that many stores lacked the personal touch and attention to detail that women deserved in Nigeria . We wanted to create a store that offered not only stylish clothing, but also a warm and welcoming atmosphere where women could connect with each other and feel truly seen. So, in 2018, we opened the doors to Signora , a boutique that quickly became known for its carefully curated selection of clothing and accessories.
+Over the years, Signora has grown into a thriving community of women who share a love of fashion and a commitment to supporting each other. Our store has expanded its offerings to include not only clothing, but also jewelry, handbags, and other accessories, all chosen with the same care and attention to detail that has made Signora a destination for fashion-forward women
+
